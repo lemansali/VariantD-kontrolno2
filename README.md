@@ -1,0 +1,1 @@
+# VariantD-kontrolno2
